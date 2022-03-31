@@ -1,2 +1,2 @@
 # geraldocoil2
-personalizando perfil
+personalizando perfil🕹☕📚💻
