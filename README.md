@@ -1,2 +1,4 @@
 # geraldocoil2
-personalizando perfil🕹☕📚💻
+Onde Vivem?  Ultra-Secret
+O que fazem? Estudam Linguagens de Programação
+O que comem? Café
